@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **tue.tran20032003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/drive/u/0/my-drive)
+- 📄 Know about my experiences [LinkedIn](https://www.linkedin.com/in/minh-tu%E1%BB%87-tr%E1%BA%A7n-nguy%E1%BB%85n-a02b0b2bb/)
 
 - ⚡ Fun fact **Not everythings that counts can be counted**
 
